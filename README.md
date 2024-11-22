@@ -66,8 +66,8 @@
 ---
 
 ### 📊 GitHub Stats  
-![Olamide's GitHub stats](https://github-readme-stats.vercel.app/api?username=Idowu-Olamide&show_icons=true&theme=radical)  
-![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=Idowu-Olamide&layout=compact&theme=radical)  
+![Olamide's GitHub stats](https://github-readme-stats.vercel.app/api?username=justolaa&show_icons=true&theme=radical)  
+![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=justolaa&layout=compact&theme=radical)  
 
 ---
 
