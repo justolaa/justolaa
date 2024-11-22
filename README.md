@@ -52,16 +52,16 @@
 
 ### 🌐 Connect with Me
 - 🌎 [Portfolio Website](https://idowu-olamide.web.app)  
-- 📧 Email: [idowuolamide@example.com](mailto:idowuolamide@example.com)  
-- 🐦 Twitter: [@OlamideIdowu](https://twitter.com/OlamideIdowu)  
-- 💼 LinkedIn: [Olamide Idowu](https://www.linkedin.com/in/olamideidowu)  
+- 📧 Email: [idowuolamide81@gmail.com](mailto:idowuolamide81@gmail.com)  
+- 🐦 Twitter: [@just_olaa_](https://x.com/just_olaa_)  
+- 💼 LinkedIn: [Olamide Idowu](https://www.linkedin.com/in/idowu-olamide/)  
 
 ---
 
 ### 🏆 Fun Facts & Hobbies  
 - ♟️ **Chess Enthusiast**: Teaches resilience and perseverance.  
 - ✍️ **Creative Writer**: Sharing stories through Amazon KDP.  
-- 🎨 **Entrepreneur**: Owner of **glosfabrics** – trendsetting fabric store.  
+- 🎨 **Entrepreneur**: Co-owner of **glosfabrics** – trendsetting fabric store.  
 
 ---
 
